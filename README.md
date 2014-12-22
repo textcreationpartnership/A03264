@@ -35,11 +35,28 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-A short dialogue concerning the plagues infection Published to preserue bloud, through the blessing 
+
+1. TO HIS VVELBELOVED
+IN CHRIST,
+THE PARISHIONERS
+OF SAINT OLAVES IN
+Southwarke, IAMES BAMFORD wiſheth
+increaſe of Grace and knowledge
+of our Lord and Sauiour
+Ieſus Chriſt.
+
+1. The Contents of this Dialogue.
+
 #####Body#####
-A short dialogue concerning the plagues infection Published to preserue bloud, through the blessing 
+
+1. A ſhort Dialogue concerning
+the Plagues
+infection.
+
 #####Back#####
-A short dialogue concerning the plagues infection Published to preserue bloud, through the blessing 
+
+1. Faults eſcaped.
+
 **Types of content**
 
   * There are 88 **drama** parts! This is **prose drama**.
